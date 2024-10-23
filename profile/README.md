@@ -1,3 +1,3 @@
 hello gamers
 <br>
-we make stuff!!
+we make super cool stuff
